@@ -15,6 +15,8 @@ https://www.researchgate.net/publication/338958675_Value_co-creation_in_the_hosp
 
 Καθώς ο τουριστικός κλάδος αποτελεί έναν κλάδο με ιδιαίτερη ανταγωνιστικότητα, είναι σημαντικό οι επιχειρήσεις να στοχεύουν στη βέλτιστη εμπειρία και ικανοποίηση των πελατών. Η πελατοκεντρική αυτή προσέγγιση μπορεί να περιλαμβάνει είτε προσωποποιημένες εμπειρίες, "κομμένες και ραμένες" στις απαιτήσεις του πελάτη, (Canestrino et. al., 2019).
 
+Υπάρχουν πολλοί τρόποι με τους οποίους μπορεί μια επιχείρηση να δείξει ότι εκτιμά τον πελάτη της. Ένας παράγοντας θα μπορούσε να αποτελεί η παροχή εξειδικευμένης εμπειρίας των τουριστών, δίνοντας τους την ευκαιρία να ζήσουν σα ντόπιοι. https://www.researchgate.net/publication/338958675_Value_co-creation_in_the_hospitality_industry_learning_from_the_Vascitour_experienc
+
 https://www.researchgate.net/publication/338958675_Value_co-creation_in_the_hospitality_industry_learning_from_the_Vascitour_experienc
 
 
