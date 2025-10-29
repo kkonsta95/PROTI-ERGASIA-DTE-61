@@ -34,4 +34,6 @@ Wang, M.-R., & Chen, C.-L. (2024). Exploring the Value Co-Creation of Cultural C
 
 https://reference-global.com/article/10.2478/ejthr-2024-0016
 
+https://www.researchgate.net/publication/354115755_Competitors_or_Complements_A_Meta-analysis_of_the_Effect_of_Airbnb_on_Hotel_Performance
+
 
