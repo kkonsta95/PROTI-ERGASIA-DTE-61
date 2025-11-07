@@ -132,6 +132,17 @@ Wang, M.-R., & Chen, C.-L. (2024). Exploring the Value Co-Creation of Cultural C
 
 https://reference-global.com/article/10.2478/ejthr-2024-0016
 
+
+
+3ο ΕΡΩΤΗΜΑ 
+
+ΕΞΩΤΕΡΙΚΟ ΠΕΡΙΒΑΛΛΟΝ ΞΕΝΟΔΟΧΕΙΩΝ
+
+Το περιβάλλον στο οποίο δραστηριοποιούνται οι ξενοδοχειακές επιχειρήσεις είναι διαρκώς μεταβαλλόμενο https://www.researchgate.net/publication/251714178_Strategic_Analysis_of_the_External_Environment_and_the_Importance_of_the_Information_Research_on_Perceptions_of_Hotel_Managers
+
+
+
+
 https://www.researchgate.net/publication/354115755_Competitors_or_Complements_A_Meta-analysis_of_the_Effect_of_Airbnb_on_Hotel_Performance
 
 
