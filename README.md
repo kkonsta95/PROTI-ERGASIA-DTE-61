@@ -138,7 +138,7 @@ https://reference-global.com/article/10.2478/ejthr-2024-0016
 
 ΕΞΩΤΕΡΙΚΟ ΠΕΡΙΒΑΛΛΟΝ ΞΕΝΟΔΟΧΕΙΩΝ
 
-Το περιβάλλον στο οποίο δραστηριοποιούνται οι ξενοδοχειακές επιχειρήσεις είναι διαρκώς μεταβαλλόμενο https://www.researchgate.net/publication/251714178_Strategic_Analysis_of_the_External_Environment_and_the_Importance_of_the_Information_Research_on_Perceptions_of_Hotel_Managers
+Το περιβάλλον στο οποίο δραστηριοποιούνται οι ξενοδοχειακές επιχειρήσεις είναι διαρκώς μεταβαλλόμενο. Μέσα σε ένα περιβάλλον αβεβαιότητας, η ανάλυση του εξωτερικού περιβάλλοντος επιτρέπει στις επιχειρήσεις να προλάβουν καταστάσεις και να εκτιμήσουν καλύτερα τους σκοπούς τους, και να αξιοποιήσουν τους πόρους τους. https://www.researchgate.net/publication/251714178_Strategic_Analysis_of_the_External_Environment_and_the_Importance_of_the_Information_Research_on_Perceptions_of_Hotel_Managers
 
 
 
