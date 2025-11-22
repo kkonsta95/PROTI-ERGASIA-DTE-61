@@ -45,7 +45,8 @@ https://www.researchgate.net/publication/338958675_Value_co-creation_in_the_hosp
  
 Δημιουργία αξίας μέσω νέων παρεχόμενων τεχνολογιών: Εισάγοντας νέες τεχνολογίες στα ξενοδοχεία, όπως έξυπνα συστήματα, τα οποία ελέγχουν και προσαρμόζουν τη θερμοκρασία ανάλογα, δημιουργούν αξία, μεγιστοποιώντας την εμπειρία των επισκεπτών. https://www.researchgate.net/publication/385653120_Digital_Transformation_in_the_Hospitality_Industry_Improving_Efficiency_and_Guest_Experience
 
-Για τη δημιουργία αξίας για μια επιχείρηση αξίζει να γίνει αναφορά στη Μήτρα του Ansoff, σύμφωνα με την οποία "για να διατηρήσει μια επιχείρηση τη θέση της στην αγορά, θα πρέπει να υποστεί συνεχή ανάπτυξη και αλλαγή".https://www.researchgate.net/publication/384614408_The_importance_of_the_Ansoff_matrix_for_the_study_of_the_information_services_market
+Για τη δημιουργία αξίας για μια επιχείρηση αξίζει να γίνει αναφορά στη Μήτρα του Ansoff, σύμφωνα με την οποία "για να διατηρήσει μια επιχείρηση τη θέση της στην αγορά, θα πρέπει να υπόκειται συνεχή ανάπτυξη και αλλαγή", με το να εισάγει "μια ή περισσότερες στρατηγικές μάρκετινγκ". Οι τέσσερις βασικοί άξονες που απαρτίζουν τη μήτρα του Ansoff αποτελούν τη "διείσδυση της επιχείρησης στην αγορά, την "ανάπτυξη της αγοράς, την ανάπτυξη του προιόντο και τη διαφοροποίηση". https://www.researchgate.net/publication/384614408_The_importance_of_the_Ansoff_matrix_for_the_study_of_the_information_services_market
+Το εν λόγω μοντέλο μπορεί να χρησιμοποιηθεί και στον τομέα της φιλοξενίας ως εξής: Σύμφωνα με το παράδειγμα των ITC Hotels, η επιχείρηση μπορεί να επιχειρήσει να διεισδύσει στην αγορά εφαρμόζοντας προγράμματα πιστότητας για τους πελάτες. https://www.researchgate.net/publication/390535340_The_ITC_Luxury_Collection_Hotels%27_growth_strategies_in_capturing_a_market_share_of_the_Indian_hotel_Industry
 
 ΕΡΩΤΗΜΑ 2
 
