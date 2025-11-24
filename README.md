@@ -164,6 +164,8 @@ https://reference-global.com/article/10.2478/ejthr-2024-0016
 
 Η βιομηχανία των ξενοδοχειακών επιχειρήσεων φαίνεται να έχει προχωρήσει σε μια νέα εποχή: https://www.sciencedirect.com/science/article/abs/pii/S0278431924000732
 
+Οικονομία: Καθώς η οικονομικές συνθήκες αλλάζουν, η οικονομική αβεβαιότητα επηρεάζει και το περιβάλλον των ξενοδοχείων. Οι οικονομικές συνθήκες παίζουν πρωταρχικό ρόλο στις αποφάσεις κάθε επιχείρησης και στην ικανότητά της να επενδύσει. https://www.emerald.com/jhti/article/8/11/19/1267399/The-effects-of-economic-policy-uncertainty-on
+
 
 
 https://www.researchgate.net/publication/354115755_Competitors_or_Complements_A_Meta-analysis_of_the_Effect_of_Airbnb_on_Hotel_Performance
