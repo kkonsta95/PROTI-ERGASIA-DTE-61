@@ -121,11 +121,10 @@ Samerdanta-Sinulingga, S., Nauly, M., & Marpaung, J. L. (2024). Optimizing hotel
 
  
 
-Προγράμματα πιστότητας: 
+Προγράμματα πιστότητας: Τα προγράμματα πιστότητας που παρέχουν τα ξενοδοχεία αφορούν επιβραβεύσεις στους πιστούς πελάτες τους. Η συμμετοχή των πελατών σε αυτά τα προγράμματα μπορεί να περιλαμβάνει πρόσβαση σε υπηρεσίες ανωτέρου επιπέδου, όπως το executive σαλόνι, δωρεάν αναβάθμιση δωματίου, και μάζεμα πόντων. Τα οφέλη τέτοιων προγραμμάτων είναι σημαντικά, καθώς κερδίζεται η εκτίμηση των πελατών και συνακόλουθα η προθυμία τους να επιστρέψουν στο ξενοδοχείο. Ωστόσο, πρέπει να σημειωθεί ότι και τα AirBnB έχουν ξεκινήσει να εισάγουν τέτοιου είδους προγράμματα. Είναι σημαντικό λοιπόν τα ξενοδοχεία να τα διαφοροποιήσουν, https://www.sciencedirect.com/science/article/abs/pii/S0278431918309228
 
  
-Η χρήση των μέσων κοινωνικής δικτύωσης στα ξενοδοχεία είναι ιδιαίτερα αποτελεσματική για τη διαφήμισή τους. Όσο περισσότερο υιοθετούν τα ξενοδοχεία αυτές τις πρακτικές, τόσο αυξάνεται η δημοτικότητά τους. https://www.researchgate.net/publication/276078680_The_Marketing_Effectiveness_of_Social_Media_in_the_Hotel_Industry_A_Comparison_of_Facebook_and_Twitter
- 
+
 
 Kandampully, J., & Suhartanto, D. (2000). Customer loyalty in the hotel industry: The role of customer satisfaction and image. International Journal of Contemporary Hospitality Management, 12(6), 346–351. https://doi.org/10.1108/09596110010342559 
 
