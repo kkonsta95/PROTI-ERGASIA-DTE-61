@@ -45,7 +45,7 @@ Orfila-Sintes, F., & Mattsson, J. (2007). Innovation behavior in the hotel indus
 
 Anwar, F. A., Deliana, D., & Suyanto, S. (2024, September). Digital Transformation in the Hospitality Industry: Improving Efficiency and Guest Experience. International Journal of Management Science and Information Technology, 4(2), 428-437. https://doi.org/10.35870/ijmsit.v4i2.3201
 
-Περιβαλλοντική ευαισθησία: Θα πρέπει να υιοθετηθούν αρχές και πρακτικές οι οποίες δίνουν έμφαση στη βιωσιμότητα (Lima Santos et al., 2024).
+Περιβαλλοντική ευαισθησία: Θα πρέπει να υιοθετηθούν αρχές και πρακτικές οι οποίες δίνουν έμφαση στη βιωσιμότητα (Lima Santos et al., 2024). Αναπτύσσοντας περιβαλλοντικές ευαισθησίες η επιχείρηση, όπως την εκπαίδευση του προσωπικού για μια πιο βιώσιμη επιχείρηση, https://www.tandfonline.com/doi/full/10.1080/23311886.2024.2392025#d1e213
 
 Για να μεγιστοποιήσει μια επιχείρηση και να διατηρήσει την αξία της θα πρέπει να δημιουργήσει κάτι για το οποίο ο πελάτης είναι πρόθυμος να πληρώσει περισσότερο (Reuschl et al., 2022)
 . https://link.springer.com/article/10.1007/s11846-020-00433-w 
