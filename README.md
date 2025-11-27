@@ -45,7 +45,9 @@ Orfila-Sintes, F., & Mattsson, J. (2007). Innovation behavior in the hotel indus
 
 Anwar, F. A., Deliana, D., & Suyanto, S. (2024, September). Digital Transformation in the Hospitality Industry: Improving Efficiency and Guest Experience. International Journal of Management Science and Information Technology, 4(2), 428-437. https://doi.org/10.35870/ijmsit.v4i2.3201
 
-Περιβαλλοντική ευαισθησία: Θα πρέπει να υιοθετηθούν αρχές και πρακτικές οι οποίες δίνουν έμφαση στη βιωσιμότητα (Lima Santos et al., 2024). Αναπτύσσοντας περιβαλλοντικές ευαισθησίες η επιχείρηση, όπως την εκπαίδευση του προσωπικού για μια πιο βιώσιμη επιχείρηση, https://www.tandfonline.com/doi/full/10.1080/23311886.2024.2392025#d1e213
+Περιβαλλοντική ευαισθησία: Θα πρέπει να υιοθετηθούν αρχές και πρακτικές οι οποίες δίνουν έμφαση στη βιωσιμότητα (Lima Santos et al., 2024). Αναπτύσσοντας περιβαλλοντικές ευαισθησίες η επιχείρηση, όπως την εκπαίδευση του προσωπικού για μια πιο βιώσιμη επιχείρηση, υιοθετώντας πρακτικές ανακύκλωσης. Μέσω αυτών των πρακτικών όχι μόνο θα καταφέρει η επιχείρηση να γίνει πιο βιώσιμη, αλλά παράλληλα βοηθούν την επιχείρηση να μειώσει το περιβαλλοντικό της αποτύπωμα (Dung et al., 2024). https://www.tandfonline.com/doi/full/10.1080/23311886.2024.2392025#d1e213
+
+Dung, P. T. H., Hoang, H. T., & Son, N. P. (2024, August 22). Unlocking sustainable success: the transformative impact of CSR on hotel performance. https://doi.org/10.1080/23311886.2024.2392025
 
 Για να μεγιστοποιήσει μια επιχείρηση και να διατηρήσει την αξία της θα πρέπει να δημιουργήσει κάτι για το οποίο ο πελάτης είναι πρόθυμος να πληρώσει περισσότερο (Reuschl et al., 2022)
 . https://link.springer.com/article/10.1007/s11846-020-00433-w 
@@ -103,6 +105,9 @@ Sánchez-Franco, M. J., & Aramendia-Muneta, M. E. (2023). Why do guests stay at 
   Εκτός από τις νομοθετικές ρυθμίσεις και το λόμπινγκ, Η βιομηχανία των ξενοδοχείων θα μπορούσε να επενδύσει σε πρακτικές οι οποίες βελτιώνουν την εμπειρία των επισκεπτών, με σκοπό οι τελευταίοι να επιλέγουν κατά βάση τα ξενοδοχεία αντι για τα AirBnb. Tέτοιες πρακτικές θα μπορούσαν να αποτελούν η εξατομίκευση των εμπειριών των επισκεπτών, Η δημιουργία συνεργασίας με άλλες επιχειρήσεις Και η παροχή γενικότερα ενός διαφοροποιημένου προΐόντος, κάτι το οποίο τα AirBnB δεν μπορούν να προσφέρουν. 
 
  Ανταγωνιστικό πλεονέκτημα: Είναι σημαντικό τα ξενοδοχεία να αποκτήσουν ένα συγκριτικό πλεονέκτημα έναντι των ανταγωνιστών τους. Σύμφωνα με την εμπειρική ανάλυση που πραγματοποιήθηκε από που αφορά την προτίμηση των τουριστών να διαμένουν σε καταλύματα AirBnB έναντι των ξενοδοχείων, τα ξενοδοχεία υπερτερούν όσον αφορά τον επαγγελματισμό του προσωπικού. Οι υπηρεσίες παρέχονται από εξειδικευμένους και καταρτισμένους επαγγελματίες, κάτι το οποίο δεν ισχύει πάντα με τους ιδιοκτήτες των AirBnB (Sánchez-Franco et. al., 2023). https://www.sciencedirect.com/science/article/pii/S2444569X23000768
+
+ Sánchez-Franco, M. J., & Aramendia-Muneta, M. E. (n.d.). Why do guests stay at Airbnb versus hotels? An empirical analysis of necessary and sufficient conditions. Journal of Innovation & Knowledge. https://doi.org/10.1016/j.jik.2023.100380
+ 
  Διαφοροποίηση: αυτό που διαφοροποιεί τα ξενοδοχεία σε σχέση με άλλα καταλύματα είναι οι εξτρα υπηρεσίες που αυτά παρέχουν (Orfila-Sintes & Mattsson, 2005). https://www.sciencedirect.com/science/article/pii/S0305048307000746
 
  Orfila-Sintes, F., & Mattsson, J. (2005). Innovation behavior in the hotel industry. Omega, 33(4), 383-392. https://doi.org/10.1016/j.omega.2007.04.002.
